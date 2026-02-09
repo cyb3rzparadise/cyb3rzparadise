@@ -1,2 +1,1 @@
-୨୧ ꕀ ݁˖
-.    z4ch!
+https://cdn.discordapp.com/attachments/1350131906867363906/1470410904024911984/tumblr_11d6f74f7490abcd49f6cf2ab0c3c9bd_667ce5a0_540.png?ex=698b325e&is=6989e0de&hm=3eb8268c9374fb17ee9c1dd4fd3e7a94c9d30d553a334f192f4334ae1cfac45e
