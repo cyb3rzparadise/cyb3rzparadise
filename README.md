@@ -4,5 +4,3 @@
   <div align="center"> https://n4rrator.carrd.co/ 
   <div align="center">
     zach ,, cyber ,, spear  : 12/06 
-  
- 
